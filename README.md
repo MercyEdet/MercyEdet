@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @MercyEdet
+- 👀 I’m interested in graduate intership/entry level role for Data analyst position and human resource
+- 🌱 I’m currently learning Data analyst, human resource
+- 💞️ I’m looking to collaborate on Data Analyst task, Law coompliances, human resources tools
+- 📫 How to reach me https://www.linkedin.com/in/mercy-edet/ (linkedin), mercyedet273@gmail.com(gmail), @mercyjimmy2 [Twitter]
+- 😄 Pronouns:She/her
+- ⚡ Fun fact: I love networking and connecting with people
